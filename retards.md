@@ -16,3 +16,5 @@ List of retards :D
 978270449303695360 : nowel, c++ client crashes on inject for being in the wrong timezone
 
 666607792047783952 : Itsryder, countless cases of tardism, doesnt know why he got retard role then spams all the owners dms.
+
+904883324449878066 : Obama Gaming, told me my config was skidded bc it was 2000 lines. He thinks you make a config in a text editor (he was being serious)
